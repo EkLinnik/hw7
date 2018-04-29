@@ -1,2 +1,2 @@
 # hw7
-![](https://vk.com/doc156387706_465523791?hash=a176a078540a80ae14&dl=f8797589ae515c2d3f)
+![](https://vk.com/im?peers=c96_379401866_c103&sel=156387706&z=photo156387706_456240208%2Fmail659180)
